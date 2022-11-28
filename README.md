@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nevoxd
+- 👀 I’m interested in computer games, programming
+- 🌱 I’m currently learning python and java
+- 📫 How to reach me : add me on my discord nevo#0001
